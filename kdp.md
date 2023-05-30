@@ -14,7 +14,7 @@ Part 1 provides an overview of workplace culture, exploring its definition, scie
 
 Throughout the book, readers will gain practical insights and real-world examples of organizations that have successfully created a strong and healthy workplace culture. By prioritizing workplace culture, organizations can unlock their full potential and achieve greater success and fulfillment.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 Change management
 Organizational culture
