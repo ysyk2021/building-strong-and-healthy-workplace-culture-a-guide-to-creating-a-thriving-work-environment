@@ -1,4 +1,3 @@
-# Chapter 6: Gathering Feedback from Employees
 
 Gathering feedback from employees is an essential step in assessing and improving workplace culture. Employee feedback provides valuable insights into the strengths and weaknesses of an organization's culture, and can serve as a catalyst for positive change and growth. Here are some key considerations for gathering feedback from employees:
 

@@ -1,4 +1,3 @@
-# Mentoring Programs
 
 Mentoring programs can be a powerful way to empower employees and promote a strong and healthy workplace culture. When employees have access to mentors, they benefit from guidance, feedback, and support that can help them learn and grow in their roles. Mentoring programs can also help build relationships between colleagues and foster a culture of collaboration and knowledge sharing.
 

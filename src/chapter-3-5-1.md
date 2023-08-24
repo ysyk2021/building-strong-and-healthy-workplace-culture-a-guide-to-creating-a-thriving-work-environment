@@ -1,4 +1,3 @@
-# Providing Meaningful Feedback
 
 Recognizing and rewarding success is an essential component of building a strong and healthy workplace culture. Employees who feel appreciated and valued for their contributions are more likely to be engaged, productive, and committed to the success of the organization.
 

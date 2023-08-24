@@ -1,4 +1,3 @@
-# Chapter 1: What is Workplace Culture?
 
 Workplace culture refers to the shared values, beliefs, attitudes, and behaviors that define an organization's unique identity and character. It encompasses everything from the way employees communicate and interact with each other, to the organization's mission, vision, and core values. Workplace culture influences how employees perceive their work environment, and shapes their attitudes and behaviors towards their work and colleagues.
 

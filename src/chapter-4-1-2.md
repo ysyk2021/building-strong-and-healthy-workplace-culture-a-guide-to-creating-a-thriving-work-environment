@@ -1,4 +1,3 @@
-# Promoting Consistency
 
 Consistency is a key element in building a strong and healthy workplace culture. When values and behaviors are consistently reinforced throughout the organization, it establishes a sense of trust, respect, and accountability among employees.
 

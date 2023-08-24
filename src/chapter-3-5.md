@@ -1,4 +1,3 @@
-# Chapter 11: Recognizing and Rewarding Success
 
 Recognizing and rewarding success is essential for promoting employee motivation and engagement. This may involve:
 

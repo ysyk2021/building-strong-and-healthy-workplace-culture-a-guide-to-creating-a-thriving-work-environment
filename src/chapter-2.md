@@ -1,5 +1,3 @@
-Part 2: Assessing Your Workplace Culture
-========================================
 
 Assessing your workplace culture is an essential step in creating a strong and healthy work environment. By identifying areas of concern and building on areas of strength, organizations can develop action plans to improve workplace culture and promote employee satisfaction, engagement, and success. This section focuses on practical strategies for assessing workplace culture, including identifying the current state of your workplace culture, analyzing your workplace culture, and gathering feedback from employees.
 

@@ -1,4 +1,3 @@
-# Gathering Feedback
 
 Continuous improvement is essential to building and maintaining a strong and healthy workplace culture. One key component of continuous improvement is gathering feedback from employees on their experiences within the organization.
 

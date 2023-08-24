@@ -1,4 +1,3 @@
-# Chapter 12: Incorporating Your Workplace Culture into Daily Habits
 
 Incorporating your workplace culture into daily habits involves making workplace culture a central part of the organization's daily operations. This may involve:
 

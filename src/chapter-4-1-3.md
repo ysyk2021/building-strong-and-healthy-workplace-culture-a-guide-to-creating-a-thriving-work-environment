@@ -1,4 +1,3 @@
-# Demonstrating Commitment to Employee Success
 
 Creating a strong and healthy workplace culture involves more than just defining values and guidelines. It also requires demonstrating a genuine commitment to employee success, growth, and well-being.
 

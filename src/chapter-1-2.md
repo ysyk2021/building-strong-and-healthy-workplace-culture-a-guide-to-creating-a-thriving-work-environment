@@ -1,4 +1,3 @@
-# Chapter 2: The Science of Workplace Culture
 
 Workplace culture is a complex and multifaceted concept that can be difficult to define and measure. However, recent advances in the field of organizational psychology have shed light on some of the key factors that contribute to a strong and healthy workplace culture. Here are some of the key insights from the science of workplace culture:
 

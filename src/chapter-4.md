@@ -1,5 +1,3 @@
-Part 4: Sustaining a Strong and Healthy Workplace Culture
-=========================================================
 
 Creating a strong and healthy workplace culture is not a one-time event, but an ongoing process that requires continuous effort and attention. Sustaining a positive and empowering work environment requires incorporating workplace culture into daily habits, maintaining employee engagement and satisfaction, and continuously improving workplace culture.
 

@@ -1,4 +1,3 @@
-# Chapter 14: Continuously Improving Your Workplace Culture
 
 Continuously improving your workplace culture involves making ongoing adjustments and improvements based on feedback and data. This may involve:
 

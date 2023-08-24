@@ -1,4 +1,3 @@
-# Chapter 7: Defining Your Company Values
 
 Defining your company values is an essential step in creating a strong and healthy workplace culture. Company values provide a clear and consistent framework for decision-making and behavior, guiding employees towards a shared vision of success and fulfillment. Here are some key considerations for defining your company values:
 

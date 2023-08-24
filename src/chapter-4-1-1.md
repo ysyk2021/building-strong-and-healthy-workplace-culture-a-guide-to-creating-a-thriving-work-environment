@@ -1,4 +1,3 @@
-# Fostering Accountability
 
 Creating a healthy workplace culture requires more than simply establishing values and guidelines. It also involves incorporating these principles into daily habits and behaviors to foster a culture of accountability throughout the organization.
 

@@ -1,4 +1,3 @@
-# Setting Goals
 
 Setting goals is an important component of continuous improvement and creating a thriving workplace culture. By setting clear and specific goals, organizations can focus their efforts on improving the key aspects of their workplace culture that will have the most significant impact on employee engagement, productivity, and satisfaction.
 
