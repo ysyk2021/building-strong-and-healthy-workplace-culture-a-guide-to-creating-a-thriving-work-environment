@@ -1,3 +1,6 @@
+# Building Strong and Healthy Workplace Culture: A Guide to Creating a Thriving Work Environment
+
+Book Link: [https://zhengpublishing.com/building-strong-and-healthy-workplace-culture-a-guide-to-creating-a-thriving-work-environment/](https://zhengpublishing.com/building-strong-and-healthy-workplace-culture-a-guide-to-creating-a-thriving-work-environment/)
 
 Workplace culture is a critical component of organizational success. A positive and empowering workplace culture can help attract and retain top talent, increase employee engagement and productivity, and enhance the organization's reputation and brand. On the other hand, a negative or toxic workplace culture can lead to high turnover rates, low employee morale, and a lack of innovation and growth.
 
