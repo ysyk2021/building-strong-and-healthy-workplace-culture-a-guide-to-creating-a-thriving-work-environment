@@ -1,5 +1,4 @@
-Chapter 1: Overview of the Book's Purpose and Contents
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 This chapter provides an overview of the purpose and contents of the book "Building Strong and Healthy Workplace Culture: A Guide to Creating a Thriving Work Environment." It sets the stage for understanding the importance of workplace culture and outlines what readers can expect from the book.
 

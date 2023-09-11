@@ -1,5 +1,4 @@
-Chapter 14: Continuously Improving Your Workplace Culture
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of continuous improvement in building and maintaining a strong and healthy workplace culture. A thriving work environment requires ongoing efforts to assess, adapt, and enhance cultural practices. By embracing a culture of continuous improvement, organizations can create an environment that fosters employee engagement, innovation, and long-term success.
 

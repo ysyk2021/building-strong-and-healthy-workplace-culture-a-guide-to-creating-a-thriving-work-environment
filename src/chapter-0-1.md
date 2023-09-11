@@ -1,5 +1,4 @@
-Chapter 2: Why Workplace Culture is Important
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of workplace culture and why it is a crucial factor in creating a thriving work environment. Understanding the importance of workplace culture enables organizations to recognize its impact on employee engagement, productivity, and overall organizational success.
 

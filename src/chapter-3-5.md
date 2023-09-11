@@ -1,5 +1,4 @@
-Chapter 11: Recognizing and Rewarding Success
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of recognizing and rewarding success in building a strong and healthy workplace culture. We will discuss the benefits of acknowledgment, different types of recognition and rewards, and strategies for effectively implementing them in an organization.
 

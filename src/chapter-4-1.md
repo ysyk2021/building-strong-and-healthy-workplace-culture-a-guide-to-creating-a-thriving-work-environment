@@ -1,5 +1,4 @@
-Chapter 12: Incorporating Your Workplace Culture into Daily Habits
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of incorporating workplace culture into daily habits and routines. Building a strong and healthy workplace culture requires consistent effort and dedication from everyone in the organization. By integrating cultural values and practices into daily habits, employees can contribute to the development and maintenance of a thriving work environment.
 

@@ -1,5 +1,4 @@
-Chapter 10: Empowering Employees through Growth and Development
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of empowering employees through growth and development in building a strong and healthy workplace culture. We will explore the benefits of fostering employee growth, strategies for enabling professional development, and the role of empowerment in creating a thriving work environment.
 
